@@ -14,7 +14,7 @@ Online bahis dünyasında kazanmaya başlamanın en risksiz yollarından biri de
 </a>
 <div class="description">
 
-<img src="https://r.resimlink.com/USWEw7dKV.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<img src="https://r.resimlink.com/8pbK93VsSU5M.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 
 
 # Deneme Bonusu Nedir?
